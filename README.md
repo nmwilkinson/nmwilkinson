@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @nmwilkinson aka Natalie or Nat.
-- 👀 I’m interested in Dance, Cats and Cocktails.
-- 🌱 I’m currently learning what I didnt get to finish at my other school! (I just transfered from NY)
+- 🌱 I’m currently finishing up my last year here at Chattanooga State.
 - 💞️ I’m looking to collaborate with studying and working on projects.
 - 📫 Text me at (585)703-4332 or email me at nmwilkinson@my.chattanoogastate.edu
 
